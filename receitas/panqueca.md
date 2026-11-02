@@ -4,7 +4,7 @@ Ingredientes:
  - 1 xícara de leite
  - 1 ovo
  - 1 pitada de sal
- - 1 colher de sopa de óleo
+ - 1 e 1/2 colher de sopa de óleo
 Modo de preparo:
 Coloque todos os ingredientes em uma tigela.
 Misture até formar uma massa homogênea.
